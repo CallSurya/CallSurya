@@ -2,6 +2,7 @@
 
 Just a human who live on earth and like to eat indomie.
 
+### Note
 Are you interested in following my daily life? [Click here](https://suryapratama.bio.link) 😉
 
 <!---
